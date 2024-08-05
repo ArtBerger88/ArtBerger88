@@ -9,7 +9,7 @@
 -
 - 💞️ I'M LOOKING TO COLAB on anything.
 -
-- 😄 😄I'm just an intellegent guy wanting to play with computers.
+- 😄 😄I'm just an guy wanting to play with computers.
 -
 - ⚡ FUN FACT: Huge Original Star Wars Fan!!!!! 
 
