@@ -1,5 +1,5 @@
 -    HI,     👋
--  I’m ART BERGER, an aspiring software engineer, new to the feild.
+-  I’m ART BERGER, I am an entrepreneur i also have my own landscaping company as of 2024, and looking to breach into software deveolopment!!!!!
 -  I can be contacted by my business email:
 -    Artberg88@Gmail.com
 -  👀
