@@ -4,7 +4,9 @@
 -    Artberg88@Gmail.com
 -    artoflawncarellc@gmail.com
 -  Or by phone:
--    (937)443-1686
+-    (937)443-1686 (mobile)
+-    (352)419-1307 (business)
+-    
 -  👀
 -  I'M INTERESTED IN getting a well paid position doing what I am passionate about, currently mostly everything Software related.
 -  Learning and building websites like artoflawncare.com which is hosted right here on github pages.
