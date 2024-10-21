@@ -17,7 +17,7 @@
 -
 - 😄 😄I'm just an guy wanting to play with computers.
 -
-- ⚡ FUN FACT: Huge Original Star Wars Fan!!!!! 
+- ⚡ FUN FACT: Huge Original Star Wars Fan!!!!! Anything SciFi or space related, i really like.
 
 <!---
 ArtBerger88/ArtBerger88 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
