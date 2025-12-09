@@ -2,7 +2,7 @@
 -  I’m ART BERGER,
 -    I am an entrepreneur, I own A landscaping company (The Art of Lawn Care)EST 2024, looking to branch into software deveolopment!!!!!
 -    I built a mostly static site for the business with some JS for POST, it was a blast! Adding and improving it all the time!!!!
--    
+-    <br>
 -  I can be contacted by email:
 -    Artberg88@Gmail.com
 
