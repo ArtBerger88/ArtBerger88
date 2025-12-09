@@ -1,4 +1,5 @@
-  HI,  👋
+![GreetingsGIF](https://github.com/user-attachments/assets/e37d3099-4043-428c-828f-26c837e6175b)
+-  HI,  👋 
 -  I’m ART BERGER,
 -    I am an entrepreneur, I own A landscaping company (The Art of Lawn Care)EST 2024, looking to branch into software deveolopment!!!!!
 -    I built a mostly static 🌐site for the business with some JS for POST, it was a blast! Adding and improving it all the time!!!!
@@ -41,5 +42,5 @@
  ⚡
 - FUN FACT:
 - Huge Original Trilogy Star Wars Fan!!!!! Anything SciFi or space related, I'm really am interested in.
-- ![GreetingsGIF](https://github.com/user-attachments/assets/e37d3099-4043-428c-828f-26c837e6175b)
+
 
