@@ -41,6 +41,6 @@
 
  ⚡
 - FUN FACT:
-- Huge Original Trilogy Star Wars Fan!!!!! Anything SciFi or space related, I'm really am interested in.
+- Huge Original Trilogy Star Wars Fan!!!!! Anything SciFi or space related, I really love and enjoy.
 
 
