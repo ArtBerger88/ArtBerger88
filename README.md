@@ -8,9 +8,6 @@
 -  I can be contacted by email:
 -    Artberg88@Gmail.com
 
--  Or by phone:
--    (937)443-1686 (mobile)
--    (352)419-1307 (business)
     
  👀
 -  I'M INTERESTED IN:
